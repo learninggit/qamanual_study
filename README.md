@@ -1,0 +1,1 @@
+# qamanual_study
